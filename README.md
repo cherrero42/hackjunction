@@ -2,3 +2,5 @@
 
 
 https://eu.junctionplatform.com/events/junctionxmalaga
+
+20-22 Oct.23
